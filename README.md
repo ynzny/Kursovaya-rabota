@@ -1,5 +1,7 @@
 # Kursovaya-rabota
 
+https://docs.google.com/document/d/1Y5SLIE5kF1_D-0oL0rjA3GK7BLzWcYRkBNjhS_Qwe1c/edit?usp=drivesdk
+
 Учебный план
 
 Курсовая работа по 09.01
